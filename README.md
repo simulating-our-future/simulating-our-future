@@ -9,7 +9,7 @@ I'll be posting some repositories and explanations on metholodogies used for the
 
 The projects are available on Simulating_our_future's social media so it can reach a maximum of non-aware people.
 
-They last approximately 30 seconds and are displayed on these platforms :
+They last approximately 1 min and are displayed on these platforms :
 
 - TikTok (https://www.tiktok.com/@simulating_our_future)
 - Instagram Reels (https://www.instagram.com/simulating_our_future)
