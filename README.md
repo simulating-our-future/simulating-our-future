@@ -11,7 +11,7 @@ The projects are available on Simulating_our_future's social media so it can rea
 
 They last approximately 30 seconds and are displayed on these platforms :
 
-- TikTok
-- Instagram Reels
-- Facebook Reels
-- Youtube Shorts
+- TikTok (https://www.tiktok.com/@simulating_our_future)
+- Instagram Reels (https://www.instagram.com/simulating_our_future)
+- Facebook Reels (https://www.facebook.com/profile.php?id=100087377094241)
+- Youtube Shorts (https://www.youtube.com/channel/UCdhDqndTKdCwxYBfaVsdq_Q)
